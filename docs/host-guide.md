@@ -1,6 +1,6 @@
 # Host Guide for LovelyJacob's Events
 
-> ***Game Link:** https://www.roblox.com/games/13382208761/LovelyJacobs-Events*
+> ***Game Link:** [https://www.roblox.com/games/13382208761/LovelyJacobs-Events](https://www.roblox.com/games/13382208761/LovelyJacobs-Events)*
 > <br> ***Last edited:** 5/14/2023*
 
 **Please note the following:**
